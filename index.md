@@ -1,5 +1,7 @@
 Kyla Park
+
 dap006@ucsd.edu
+
 A11 Rose Yu, Yian Ma
 
 1. What is the most interesting topic covered in your domain this quarter?
